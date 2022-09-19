@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lauracanovc
+- 👀 I’m interested in cinema, music and programming
+- 🌱 I’m currently learning programming lenguages
+- 📫 How to reach me lauracano062004@gmail.com
